@@ -1,1 +1,1 @@
-Genearating Insights to the Supply Chain Issue in the FMCG Domain
+Genearating Insights to the Supply Chain Issues in the FMCG Domain
